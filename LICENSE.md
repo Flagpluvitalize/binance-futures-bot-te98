@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with elite binance futures bot Plugin | futures-arbitrage + slippage-control, the #1 binance futures bot. Includes futures-arbitrage and slippage-control for
 
 
 
